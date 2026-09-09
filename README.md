@@ -1,1 +1,0 @@
-# mozagri.github.io
